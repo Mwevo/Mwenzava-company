@@ -1,2 +1,0 @@
-# Mwenzava-company
-Mwenzava store
